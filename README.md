@@ -1,2 +1,2 @@
 sadik faruk çetin
-ssssssssssssu deneme yazısıdır.
+sssssssssssssssu deneme yazısıdır.
